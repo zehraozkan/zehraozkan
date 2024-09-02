@@ -1,1 +1,1 @@
-freshman in Bilkent University, Computer Science Student
+sophomore in Bilkent University, Computer Science Student
